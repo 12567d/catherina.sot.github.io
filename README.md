@@ -1,4 +1,4 @@
-# lubovgera.github.io
+# catherina.sot.github.io
 ## Сравнительный анализ.ТОП 10 CRM
 
 ## [ CRM  МойСклад ] (https://crmindex.ru)
